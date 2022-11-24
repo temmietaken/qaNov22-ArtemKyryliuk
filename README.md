@@ -1,0 +1,1 @@
+# qaNov22-ArtemKyryliuk
